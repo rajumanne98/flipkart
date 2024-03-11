@@ -1,2 +1,1 @@
-hi everyoh
-ne niting
+hi everyone
